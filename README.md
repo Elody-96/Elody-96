@@ -4,7 +4,7 @@
 💞 I'm looking to collaborate on my book project
 📫 You can reach me @ melody.bleu1996@gmail.com
 😄 Pronouns: She, Her, Them, They...
-⚡ Im telepathic.
+⚡ I'm telepathic.
 
 <!---
 Elody-96/Elody-96 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
